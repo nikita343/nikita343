@@ -1,5 +1,5 @@
 Hello there,
-My name is Nick, I saw your offer and, I'm ready to help. 
+My name is Nick,
 I am a graphic designer with 2 years of experience🤓👨‍💻🧑‍🎨
 I have a large portfolio💯.
 
